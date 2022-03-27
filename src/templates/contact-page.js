@@ -52,7 +52,7 @@ const Contact = ({ data }) => {
           <p>
             <label>
               Name
-              <input type="text" name="name" required />
+              <input type="text" name="nameXX" required />
             </label>
           </p>
           <p>
