@@ -101,7 +101,7 @@ module.exports = {
         name: `Foundation`,
         short_name: `Foundation`,
         start_url: `/`,
-        background_color: `#f7f0eb`,
+        background_color: `#72a9c4`,
         theme_color: `#a2466c`,
         display: `standalone`,
         icon: "static" + settings.meta.iconimage,
