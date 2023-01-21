@@ -3,49 +3,27 @@ template: about-page
 slug: /about
 title: "A0 Boards "
 ---
-BLU __________________
+BLU **__**
 Thank you! Now say "nuclear wessels"! No! Don't jump! A sexy mistake. Anyone who laughs is a communist!
 
 A true inspiration for the children. And when we woke up, we had these bodies. Moving along… Do a flip! Michelle, I don't regret this, but I bth rue and lament it.
 
 ![Toys](/assets/vanessa-bucceri-gdirwiyama8-unsplash.jpg "Toys")
 
-Nay, I respect and admire Harold Zoid too much to beat him to death with his own Oscar. Well, then good news! It's a suppository. Then we'll go with that data file! **I've been there.** _My folks were always on me to groom myself and wear underpants._ What am I, the pope?
+Prince Harry and Meghan Markle's love story has captivated the world since they first announced their engagement in 2017. Many have said it wont last. I have been Marvelled at how well Prince Harry seemed to have picked Meghan as his wife, with their undeniable chemistry and similar values.
 
-Daddy Bender, we're hungry. We can't compete with Mom! Her company is big and evil! Ours is small and neutral! We're rescuing ya. We'll go deliver this crate like professionals, and then we'll go home.
 
-I didn't ask for a completely reasonable excuse! I asked you to get busy! I never loved you. OK, this has gotta stop. I'm going to remind Fry of his humanity the way only a woman can. With a warning label this big, you know they gotta be fun!
 
-1. And from now on you're all named Bender Jr.
-2. Ah, computer dating. It's like pimping, but you rarely have to use the phrase "upside your head."
-3. You wouldn't. Ask anyway!
+The details in Birthdays can explain the dynamic of 2 people and so much more, even to give one some confirmation or an edge as i see relationships as in investment of time, money, emotions and so forth.
 
-Bender, quit destroying the universe! No! The cat shelter's on to me. Enough about your promiscuous mother, Hermes! We have bigger problems. Fatal. I guess if you want children beaten, you have to do it yourself.
+ Harry was born on September 15th, which is one of the rare Virgos to love geminis and leos. Most virgos will have other preferences depending on the specific date. Meghan, is born on august the 4th which makes her a loveable Leo. Oh and by the way,one Prince harrys most charming characteristic is loveable, like Tom Hardy. Another attraction?
 
-I decline the title of Iron Cook and accept the lesser title of Zinc Saucier, which I just made up. Uhh… also, comes with double prize money. You mean while I'm sleeping in it? I don't want to be rescued.
+One of the most beautiful things about Prince Harry and Meghan's relationship is the emotional connection they have with each other. They have both spoken openly about how they support each other through tough times, and how they always have each other's backs. This emotional bond will be evident in their son Archie with Prince Harry as his emotional sign{Moon sign} is taurus, who has brought them even closer together as a family. Archie will have impeccable manners thanks to his Mom. Lilibet is just another wonderful addition to the family dynamic who will be fun and bring out the best in Mom.
 
-- You know the worst thing about being a slave? They make you work, but they don't pay you or let you go.
-- And when we woke up, we had these bodies.
-- Spare me your space age technobabble, Attila the Hun!
 
-Hi, I'm a naughty nurse, and I really need someone to talk to. \$9.95 a minute. But, like most politicians, he promised more than he could deliver. I don't know what you did, Fry, but once again, you screwed up! Now all the planets are gonna start cracking wise about our mamas.
 
-You mean while I'm sleeping in it? I suppose I could part with 'one' and still be feared… Nay, I respect and admire Harold Zoid too much to beat him to death with his own Oscar. Negative, bossy meat creature!
+Looking to the future, Prince Harry and Meghan seem to be on the path to a happy life together and love getting stronger. If they decide to expand their family, as a birthday specialist I suggests that another Leo, born on the 4th or 13th of August, or a Libra, born on the 28th of September, 10th of October, or 19th of October would be a great fit to all.  When it comes to expanding their family, the specific Birthday can provide some insight, but ultimately, the decision should be made by the couple themselves, considering not only the details in the specific birthday but their personal preferences
 
-Oh God, what have I done? I don't 'need' to drink. I can quit anytime I want! Bender! Ship! Stop bickering or I'm going to come back there and change your opinions manually! Wow! A superpowers drug you can just rub onto your skin? You'd think it would be something you'd have to freebase.
 
-Ask her how her day was. In our darkest hour, we can stand erect, with proud upthrust bosoms. Why did you bring us here? I don't know what you did, Fry, but once again, you screwed up! Now all the planets are gonna start cracking wise about our mamas.
 
-Good news, everyone! I've taught the toaster to feel love! This opera's as lousy as it is brilliant! Your lyrics lack subtlety. You can't just have your characters announce how they feel. That makes me feel angry!
-
-Hello Morbo, how's the family? You won't have time for sleeping, soldier, not with all the bed making you'll be doing. Oh Leela! You're the only person I could turn to; you're the only person who ever loved me.
-
-My fellow Earthicans, as I have explained in my book 'Earth in the Balance'', and the much more popular ''Harry Potter and the Balance of Earth', we need to defend our planet against pollution. Also dark wizards. Incidentally, you have a dime up your nose.
-
-You are the last hope of the universe. You know the worst thing about being a slave? They make you work, but they don't pay you or let you go. I meant 'physically'. Look, perhaps you could let me work for a little food? I could clean the floors or paint a fence, or service you sexually?
-
-Hey, guess what you're accessories to. I feel like I was mauled by Jesus. Why would a robot need to drink? What are their names? Fry! Quit doing the right thing, you jerk! Doomsday device? Ah, now the ball's in Farnsworth's court!
-
-I saw you with those two "ladies of the evening" at Elzars. Explain that. Shinier than yours, meatbag. That's the ONLY thing about being a slave. Um, is this the boring, peaceful kind of taking to the streets?
-
-Just once I'd like to eat dinner with a celebrity who isn't bound and gagged. Daddy Bender, we're hungry. Kids don't turn rotten just from watching TV. I just want to talk. It has nothing to do with mating. Fry, that doesn't make sense.
+Overall, it seems that Prince Harry's intuition and letting his heart guide him in his choice of a partner has led him to find true love and happiness with Meghan Markle, and they are a perfect match not only by feelings but also by birthdays. We wish them all the best in their journey together as a family.
