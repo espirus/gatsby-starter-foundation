@@ -1,8 +1,8 @@
 ---
 template: index-page
 slug: /
-title: Fred Fish
-tagline: Graphic Designer
+title: Harry & Meghan
+tagline: "Unlock the numbers "
 featuredImage: /assets/h-m.jpg
 cta:
   ctaText: Know more
