@@ -3,7 +3,7 @@ template: index-page
 slug: /
 title: Fred Fish
 tagline: Graphic Designer
-featuredImage: /assets/fredrick-tendong-hvyepjyehdq-unsplash.jpg
+featuredImage: /assets/h-m.jpg
 cta:
   ctaText: Know more
   ctaLink: /about
