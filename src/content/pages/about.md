@@ -3,14 +3,9 @@ template: about-page
 slug: /about
 title: "A0 Boards "
 ---
-BLU **__**
-Thank you! Now say "nuclear wessels"! No! Don't jump! A sexy mistake. Anyone who laughs is a communist!
-
-A true inspiration for the children. And when we woke up, we had these bodies. Moving along… Do a flip! Michelle, I don't regret this, but I bth rue and lament it.
+Prince Harry and Meghan Markle's love story has captivated the world since they first announced their engagement in 2017. Many have said it wont last. I have been Marvelled at how well Prince Harry seemed to have picked Meghan as his wife, with their undeniable chemistry and similar values.
 
 ![Toys](/assets/vanessa-bucceri-gdirwiyama8-unsplash.jpg "Toys")
-
-Prince Harry and Meghan Markle's love story has captivated the world since they first announced their engagement in 2017. Many have said it wont last. I have been Marvelled at how well Prince Harry seemed to have picked Meghan as his wife, with their undeniable chemistry and similar values.
 
 
 
