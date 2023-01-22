@@ -9,11 +9,4 @@ cta:
   ctaLink: /about
 ---
 
-
-```
-
-```
-
-
-
 Prince Harry and Meghan Markle's love story has captivated the world since they first announced their engagement in 2017. Many have said it wont last. I have been Marvelled at how well Prince Harry seemed to have picked Meghan as his wife, with their undeniable chemistry and similar values.
