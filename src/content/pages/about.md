@@ -8,7 +8,6 @@ Prince Harry and Meghan Markle's love story has captivated the world since they 
 ![Toys](/assets/vanessa-bucceri-gdirwiyama8-unsplash.jpg "Toys")
 
 
-
 The details in Birthdays can explain the dynamic of 2 people and so much more, even to give one some confirmation or an edge as i see relationships as in investment of time, money, emotions and so forth.
 
  Harry was born on September 15th, which is one of the rare Virgos to love geminis and leos. Most virgos will have other preferences depending on the specific date. Meghan, is born on august the 4th which makes her a loveable Leo. Oh and by the way,one Prince harrys most charming characteristic is loveable, like Tom Hardy. Another attraction?
